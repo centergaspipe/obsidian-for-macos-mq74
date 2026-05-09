@@ -1,4 +1,4 @@
-
+Obsidian for macOS rare Macro - quick search and export to PDF offers the most advanced Obsidian for macOS macro, with quick search and export to PDF. Ideal for professionals.
 
 
 
